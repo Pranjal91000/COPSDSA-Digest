@@ -70,6 +70,8 @@ Multi-dimensional vectors are vectors of vectors, allowing for the creation of m
 
 ***Pro-Tip:***
 
-![Gif 1](https://tenor.com/view/love-emergency-situation-gif-16010137) ![Gif 2](https://tenor.com/view/this-is-kinda-urgent-calvin-payne-house-of-payne-ho-hate-s9e4-gif-25259911) ![Gif 3](https://tenor.com/view/love-emergency-situation-gif-16010137)
 
--Jaldi Transition Karo Vectors Mai
+![this-is-kinda-urgent-calvin-payne](https://github.com/Pranjal91000/COPSDSA-Digest/assets/95901436/86faf126-9a0d-4b6b-8e41-f6a27a8988dc)
+
+
+-Please get adicted to vectors asap.
